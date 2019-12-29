@@ -5,7 +5,9 @@ tags:
  - food 
 ---
 
-Our food bill is already quite low. We mainly eat vegetarian food at home, and a lot of very cheap legumes. We are recovering Waitrose/Ocado shoppers but saw the light a few months ago and we now shop in Lidl/Aldi for what often seems higher or similar quality food but at a fraction of the price. We love having cosy meals at home and we are very happy batch cooking and eat the same dinner every night for a week, if it's something tasty. We budget £200 a month for groceries (two adults and one baby) and that includes all cleaning and healthcare products, baby stuff (nappies, wipes, etc), and feeding our two kitties (who are quite particular about what they eat). 
+Our food bill is already low because we eat mainly veggie food at home. We are recovering Waitrose/Ocado shoppers but we now shop in Lidl/Aldi for what often seems higher or similar quality food but at a fraction of the price. 
+
+We love having cosy meals at home and we are very happy batch cooking and eat the same dinner every night for a week, if it's something tasty. We budget £200 a month for groceries (two adults and one baby) and that includes all cleaning and healthcare products, baby stuff (nappies, wipes, etc), and feeding our two kitties (who are quite particular about what they eat). 
 
 However in January we’re going to kick it up a notch. We’re going to live off £62. How did we get to that number? We started with the [breadline challenge](https://www.greenhousepr.co.uk/foodcycle-the-breadline-challenge-uk-food-poverty/) of £2.10 a day. For two of us that would be 2 * 31 * 2.10 = £130. However, normally we come in well under our usual £200 budget at around £160 (including non-food spend) and so to give ourselves a really tough challenge we set our target at £1 per day per person! However, we are going to take the opportunity to use up some spices and random supplies (eg 5 year old lamb stock cubes) we have which of course makes the challenge slightly easier for us. 
 
