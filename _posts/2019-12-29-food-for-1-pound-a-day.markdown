@@ -5,21 +5,26 @@ tags:
  - food 
 ---
 
-Our food bill is already quite low. We mainly eat vegetarian at home. We’re recovering Waitrose/Ocado consumers and we now shop in LIdl/Aldi for what often seems higher quality but at a fraction of the price. We prefer to eat in than eat out and we’re quite happy batch cooking. We budget £200 a month for groceries (two adults and one baby) and that includes all cleaning products, healthcare products, baby related things (nappies, wipes, etc), and feeding our pets. 
+Our food bill is already quite low. We mainly eat vegetarian food at home, and a lot of very cheap legumes. We are recovering Waitrose/Ocado shoppers but saw the light a few months ago and we now shop in Lidl/Aldi for what often seems higher or similar quality food but at a fraction of the price. We love having cosy meals at home and we are very happy batch cooking and eat the same dinner every night for a week, if it's something tasty. We budget £200 a month for groceries (two adults and one baby) and that includes all cleaning and healthcare products, baby stuff (nappies, wipes, etc), and feeding our two kitties (who are quite particular about what they eat). 
 
-However in January we’re going to kick it up a notch. We’re going to live off £62. How did we get to that number? We started with the [breadline challenge](https://www.greenhousepr.co.uk/foodcycle-the-breadline-challenge-uk-food-poverty/) of £2.10 a day. For two of us that would be 2 * 31 * 2.10 = £130. This did not seem like a challenge so £1 a day per person was set as the target! We’ll use some spices and store supplies we already have but even if we factored those in we’d be below the £2.10 a day each from the breadline challenge. 
+However in January we’re going to kick it up a notch. We’re going to live off £62. How did we get to that number? We started with the [breadline challenge](https://www.greenhousepr.co.uk/foodcycle-the-breadline-challenge-uk-food-poverty/) of £2.10 a day. For two of us that would be 2 * 31 * 2.10 = £130. However, normally we come in well under our usual £200 budget at around £160 (including non-food spend) and so to give ourselves a really tough challenge we set our target at £1 per day per person! However, we are going to take the opportunity to use up some spices and random supplies (eg 5 year old lamb stock cubes) we have which of course makes the challenge slightly easier for us. 
 
-So what will we eat? Pretty much what we normally do but we plan to eradicate any waste and meal plan so there aren’t any unexpected meals out or unplanned visits to the shops. We’ll be having:
+So what will we eat? Pretty much what we normally do but we will eradicate any waste and plan all our meals so there aren’t any unexpected resturant trips or unplanned visits to the shops. We have the following criteria for the challenge:
+
 * At least 2 pieces of fruit a day
 * At least 3 portions of veg every day 
+* We will eat 3 meals per day: breakfast, lunch and dinner
+* We will have some kind of pudding after 1 meal per day (eg a biscuit)
 
-With the following kinds of meals:
+We have some ideas for what we will be eating:
 * Porridge/homemade muesli/toast
 * Spicy vegetable and bean stew
-* Veg/rice stir fries
+* Veg stir fries with rice
 * Butternut squash risotto
 * Pumpkin soup
 * Mixed vegetable soup
 * ...We’ll fill in more at the end of the month
 
-Why do this? Not just to save money, but that’ll be nice. It is a reminder to how privileged and lucky we are to live in an age where food is so cheap and plentiful. Minimum wage in the UK is £8.21. Meaning that in 9 minutes you can earn enough to feed yourself for the day if you’re willing to cook it all at home, that’s amazing. Imagine how long it would take to tend your own crops to feed yourself? More than 9 minutes!  
+So why are we doing this? It's not just to save ourselves money, though we are very excited about that. This challenge will help remind us how incredibly privileged and lucky we are to live in an age where food is cheap and plentiful. 
+
+Minimum wage in the UK is £8.21 per hour. That means that in 9-18 minutes, someone on minimum wage can, in theory, earn enough to feed themselves for a day. Imagine how long it would take to feed ourselves if we all had to grow our own food and tend to our own crops? More than 9 minutes per day, that's for sure! 
